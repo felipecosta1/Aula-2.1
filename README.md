@@ -1,3 +1,4 @@
 Miguel Falabela\
-Tony Ramos\
-Fabio Assunção
+Fernada Montenegro\
+Fabio Assunção\
+Letícia Sabatela
