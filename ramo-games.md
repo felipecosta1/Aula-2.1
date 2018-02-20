@@ -1,3 +1,4 @@
-Descent\
-Mario\
-Need for Speedy
+Miguel Falabela\
+Fernanda Montenegro\
+Fabio Assunção\
+Letícia Sabatela
